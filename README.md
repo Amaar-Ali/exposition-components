@@ -1,3 +1,1 @@
-I JUS WANT YOU BACK
-LIKE PLEASE
-AAAAAAAAAAA
+//spelling errors fixed//
